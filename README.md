@@ -10,3 +10,5 @@ Deadline: September 15, 2019 (for applicants wishing to begin research in Februa
 The Fall 2020 VS/VR online application is now closed and will open in mid-January 2020.
 * Deadline: September 15, 2020 (for applicants wishing to begin research in February 2021)
 The Spring 2021 VS/VR online application is now closed and will open in mid-July 2020.
+
+college is cool
